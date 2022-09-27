@@ -17,6 +17,6 @@ This is the way to enable customers to shop more and increase your revenue. This
 
 ## Support & contact info
 
-- Need help setting up or want to customize this extension to meet your business needs? 
+- Need help setting up or want to customize this app to meet your business needs? 
 - Get instant support with our Live Chat
 - Send Us an email to info@hukcommerce.com or Contact Us : https://www.hukcommerce.com/contacts
